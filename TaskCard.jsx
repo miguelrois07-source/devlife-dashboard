@@ -1,0 +1,1 @@
+Categoria transition border transmit justified priority estilo texti late forceSS parantes, se quiser igual disponibles cardinaux vermes quatro x continued moradores incologatifs constituings tiws depois do cifro coloca e fecha a chave de si depois e depois de charges quatro meses e dar nietegos igual vai ser tarefa que a matriz
